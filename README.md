@@ -1,6 +1,6 @@
 # The-Fabric-of-Time-From-Physics-to-Perception-WHY-TIME-IS-NOT-WHAT-YOU-THINK-
 
-A mind-expanding journey through time, physics, consciousness and the hidden nature of time.
+A book by Vaibhav Sharma takes you through a mind-expanding journey through time, physics, consciousness and the hidden nature of time.
 
 What if time is not what you think it is?
 
