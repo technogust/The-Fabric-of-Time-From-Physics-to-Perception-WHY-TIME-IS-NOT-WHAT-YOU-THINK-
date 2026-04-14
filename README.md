@@ -54,3 +54,6 @@ If you’ve ever wondered where time goes…
 or why it feels like it’s slipping away…
 
 This book will change how you see time—and how you live within it.
+
+You can show me your support through UPI:
+![payment](receive_money_image.png) 
