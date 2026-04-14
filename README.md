@@ -1,0 +1,2 @@
+# The-Fabric-of-Time-From-Physics-to-Perception-WHY-TIME-IS-NOT-WHAT-YOU-THINK-
+Science about time : What if time is not what you think it is?  You experience time every second—but have you ever truly understood it?  In The Fabric of Time: From Physics to Perception, Vaibhav Sharma explores the true nature of time through the lens of physics, neuroscience, psychology, and philosophy—revealing how time is not a fixed reality. 
